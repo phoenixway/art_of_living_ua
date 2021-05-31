@@ -12,7 +12,7 @@ Github - простий спосіб миттєво робити 'дзеркал
 
 ## Про себе
 Мій сайт - https://romankozack.wordpress.com/  
-Твіттер - https://twitter.com/roman_cossack
+Твіттер - https://twitter.com/roman_cossack  
 'Політичний' твіттер - https://twitter.com/cossack_roman
 
 Кращі побажання!
