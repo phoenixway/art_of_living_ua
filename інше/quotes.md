@@ -10,3 +10,6 @@ You can come out bitter or you can come out better. Don’t just go through it, 
 
 If we did the things we are capable of we would astound ourselves
 Edison
+
+Put your heart, mind, and soul into even your smallest acts. This is the secret of success.
+Swami Sivananda
