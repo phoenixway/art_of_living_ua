@@ -13,3 +13,6 @@ Edison
 
 Put your heart, mind, and soul into even your smallest acts. This is the secret of success.
 Swami Sivananda
+
+If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.
+James Cameron
