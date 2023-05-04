@@ -16,3 +16,10 @@ Swami Sivananda
 
 If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.
 James Cameron
+
+Be a practical dreamer, backed by action.
+“No matter how small the task, take the first step now.”
+
+“There are always limits, and there are always opportunities. The ones we rehearse and focus on are the ones that shape our attitude and our actions.”
+
+
